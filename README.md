@@ -1,0 +1,2 @@
+- I am Ignacio Loyola
+- Fan and follower of ancient greek arete and love for the universal.
